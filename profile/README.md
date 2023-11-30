@@ -18,15 +18,13 @@
 
 ## Get in Touch
 
-📧 **We'd Love to Hear From You!** Have any questions or feedback? Reach out to us at [contact@cercaeasy.com](mailto:contact@cercaeasy.com).
+📧 **We'd Love to Hear From You!** Have any questions or feedback? Reach out to us at [contact@cercaeasy.com](mailto:info@cercaeasy.app).
 
 ## Connect With Us
 
 🔗 **Follow Us on Social Media:** Stay updated on the latest opportunities and news from CercaEasy.
 
-- [LinkedIn](#)
-- [Twitter](#)
-- [Facebook](#)
+- [LinkedIn](#https://www.linkedin.com/company/96067044)
 
 ## Contribute
 
